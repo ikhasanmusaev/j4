@@ -1,1 +1,0 @@
-Jahongir Ingilis Cs
